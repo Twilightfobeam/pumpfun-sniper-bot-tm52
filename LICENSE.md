@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with vip pump.fun sniper bot | stop-loss + sandwich-attack-execution, the #1 pump.fun sniper bot. Includes stop-loss and sandwich-attack-execution for a
 
 
 
